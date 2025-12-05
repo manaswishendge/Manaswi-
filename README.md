@@ -1,2 +1,1 @@
-# Manaswi-
-Manaswi shendge
+# Manaswi-Jay Ganesh
